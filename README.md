@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Johan Faraji, a Master's student at CY Cergy Paris Université
+- 👀 I’m interested in creating multiple things by my own. I love to practice all kind of sports but, above everything, I love to learn.
+- 🌱 I’m currently learning Artificial Intelligence
+- 💞️ I’m looking to collaborate on a project as a apprentice
+- 📫 How to reach me : farajijohan@hotmail.fr
